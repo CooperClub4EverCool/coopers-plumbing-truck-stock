@@ -1,1 +1,0 @@
-# coopers-plumbing-truck-stock
